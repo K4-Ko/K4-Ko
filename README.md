@@ -1,4 +1,4 @@
-## Hello 👋, you can call me Kako or Bruno:
+## Hello 👋, you can call me Kako/Bruno:
 
 🚀 Aspiring IT Professional | 💡 Tech Enthusiast
 
