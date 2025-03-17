@@ -4,7 +4,7 @@
 
 🌱 I’m currently learning: Python 🐍 (expanding soon to JavaScript and more!) 
 
-📫 How to reach me: brunosouzaleal@icloud.com
+📫 How to reach me: brunosouzaleal@hotmail.com
 
 😄 Pronouns: He/Him
 
