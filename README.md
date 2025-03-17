@@ -1,3 +1,5 @@
+## Hello 👋, youc can call me Kako:
+
 🚀 Aspiring IT Professional | 💡 Tech Enthusiast
 
 🔭 I’m currently working on: Not in IT yet, but working towards it!
