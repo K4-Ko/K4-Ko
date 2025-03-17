@@ -1,4 +1,4 @@
-## Hello 👋, you can call me Kako:
+## Hello 👋, you can call me Kako or Bruno:
 
 🚀 Aspiring IT Professional | 💡 Tech Enthusiast
 
@@ -9,8 +9,6 @@
 📫 How to reach me: brunosouzaleal@hotmail.com
 
 😄 Pronouns: He/Him
-
-⚡ Fun fact: My nickname is Kako!
 
 💻 Passionate about technology, problem-solving, and continuous learning. Looking forward to transitioning into the IT field and growing my skill set!
 
