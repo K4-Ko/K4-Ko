@@ -1,6 +1,6 @@
 ## Hello 👋, you can call me Kako/Bruno:
 
-🚀 DevOps student | 💡 Tech Enthusiast | 🖥️ Tech Enthusiast
+🚀 DevOps student | 💡 Tech Enthusiast | 🖥️ Hardware lover
 
 🔭 I’m currently working on: Not in IT yet, but working towards it!
 
