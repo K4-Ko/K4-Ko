@@ -2,7 +2,7 @@
 
 🚀 DevOps student | 💡 Tech Enthusiast | 🖥️ Hardware lover
 
-🔭 I’m currently working on: Not in IT yet, but working towards it!
+🔭 I’m currently working on: Not as DevOP yet, but working towards it!
 
 🌱 I’m currently learning: Python 🐍 (expanding soon to JavaScript and more!) 
 
