@@ -3,7 +3,9 @@
 🚀 Cyber Security student | 💡 Tech Enthusiast | 🖥️ Hardware lover
 
 🔭 I’m currently working as: IT Support Engineer L2
+
 🌱 I’m currently learning: Python 
+
 🐍 (expanding soon to JavaScript and more!) 
 
 📫 How to reach me: brunosouzaleal@hotmail.com
