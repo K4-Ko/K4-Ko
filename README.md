@@ -1,9 +1,8 @@
 ## Hello 👋, you can call me Kako/Bruno:
 
-🚀 DevOps student | 💡 Tech Enthusiast | 🖥️ Hardware lover
+🚀 Cyber Security student | 💡 Tech Enthusiast | 🖥️ Hardware lover
 
-🔭 I’m currently working on: Not as DevOP yet, but working towards it!
-
+🔭 I’m currently working as: IT Support Engineer L2
 🌱 I’m currently learning: Python 🐍 (expanding soon to JavaScript and more!) 
 
 📫 How to reach me: brunosouzaleal@hotmail.com
