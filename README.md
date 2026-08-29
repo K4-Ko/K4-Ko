@@ -8,8 +8,6 @@
 
 🐍 (expanding soon to JavaScript and more!) 
 
-📫 How to reach me: brunosouzaleal@hotmail.com
-
 😄 Pronouns: He/Him
 
 💻 Looking forward to transitioning into Cyber Security field and growing my skill set!
