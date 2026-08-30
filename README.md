@@ -1,4 +1,4 @@
-## Hello 👋, you can call me Kako/Bruno:
+## Hello 👋
 
 🚀 Cyber Security student | 💡 Tech Enthusiast | 🖥️ Hardware lover
 
